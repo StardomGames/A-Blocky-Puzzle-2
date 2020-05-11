@@ -1,2 +1,2 @@
 # A Blocky Puzzle 2
-coming soon...
+A Sequel to A Blocky Puzzle... Thats about it. :)
